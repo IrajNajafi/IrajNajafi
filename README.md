@@ -63,6 +63,6 @@ Open to internship or junior developer opportunities to grow and contribute to m
 - 📧 ایمیل / Email: irajnajafi1988@gmail.com  
 - 🌍 لوکیشن / Location: Tehran, Iran  
   
-
+ 🔗 LinkedIn: https://www.linkedin.com/in/iraj-najafi-2a0a9938b/
 
 
